@@ -1,4 +1,4 @@
-# Play Sprunki Sinner Edition Game Online Free
+# Play Sprunki Sinner Edition Online
 
 **Sprunki Sinner Edition** is an innovative mod of the widely popular music game **Incredibox**, developed by @Harryaltered on the Cocrea platform. This unique version transforms the original gameplay into a darker, more immersive experience, introducing players to the infamous **Sinner Mode**, which blends horror elements with musical creativity. 
 

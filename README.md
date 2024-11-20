@@ -6,9 +6,9 @@
 
 Ready to begin your dark musical journey? Choose your preferred platform:
 
-- [Play on Sprunki Sinner](https://sprunkisinner.org/)
+- Play [Sprunki Sinner Edition](https://sprunkisinner.org/) on Sprunki Sinner
 
-- [Play on Sprunki Retake](https://sprunki-retake.net/sprunki-sinner-edition)
+- Play [Sprunki Sinner Edition](https://sprunki-retake.net/sprunki-sinner-edition) on Sprunki Retake
 
   
 
